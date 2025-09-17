@@ -38,5 +38,3 @@ Focus marketing efforts on peak seasons like Valentine's Day and Diwali.
 Optimize logistics for higher order volumes to maintain delivery efficiency.
 Promote top products (e.g., Dessert Box) to boost sales.
 
-Last Updated
-Wednesday, September 17, 2025, 01:15 PM SAST
